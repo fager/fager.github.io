@@ -13,3 +13,7 @@ Wie Balosch bei passender Gelegenheit sagte...
 
 > Trollshit
 
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/4/42/Battle_axe_medieval.svg/500px-Battle_axe_medieval.svg.png"/>
+
+[Bildquelle](https://commons.wikimedia.org/wiki/File:Battle_axe_medieval.svg)
+
