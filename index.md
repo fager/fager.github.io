@@ -9,3 +9,7 @@ Bei Balosch handelt es sich um einen Zwerg aus einer kleinen Rollenspielwelt. Ge
 * Ist auf der Suche nach dem Rest seiner Sippe
 * Hält Elfen nur für Orks mit Schönheits-OPs
 
+Wie Balosch bei passender Gelegenheit sagte...
+
+> Trollshit
+
